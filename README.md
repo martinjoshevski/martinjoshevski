@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my Skills.<br>🌱 I’m currently learning more about Backend Development.<br>🤔 I’m looking for help with Exploring New Technologies.<br>💬 Ask me about any tech-related stuff.<br>📫 How to reach me: Email - joshevskimartin94@gmail.com<br>😄 Pronouns: He/His<br>⚡ Fun fact: My favourite artist is Drake <br> www.martinjoshevski.com
+🔭 I’m currently working on my Skills.<br>🌱 I’m currently learning more about Backend Development.<br>🤔 I’m looking for help with Exploring New Technologies.<br>💬 Ask me about any tech-related stuff.<br>📫 How to reach me: Email - joshevskimartin94@gmail.com<br>😄 www.martinjoshevski.com
 
 
 ## 🌐 Socials:
